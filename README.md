@@ -194,6 +194,10 @@ https://delivr.to
 31% off monthly or annual subscription with code: BLACKFRIDAY \
 Deal ends: Nov 25th
 
+KNOXSS
+[https://knoxss.me/?page_id=7](https://knoxss.me/?page_id=1974)
+Up to 75% OFF depending on plan
+
 ## Live Courses & Conferences (NEW CATEGORY 2023!)
 
 Ringzer0 BOOTSTRAP24 Training and Conference \
